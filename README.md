@@ -1,1 +1,5 @@
-# PCD
+# PCD KEL 3 
+# PENAPISAN CITRA DALAM RANAH FREKUENSI
+
+Mala Hasanatul Amanah - 2106042
+Susan Melinda - 2106093
